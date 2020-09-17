@@ -5,3 +5,4 @@ Step 3: Sacrifice $50,000 on each of the 3 of the 4 tower types(primary, militar
 Step 4: Get a Legend of the night(xx5 super monkey) and The anti-bloon(x5x super monkey) OUTSIDE the sacifice range of True sun god.
 Step 5: Sacrifice another $50,000 on each of all the 4 tower types by upgrading the Sun temple to True sun god(5xx) with the other towers close to it.
 Step 6: If done correctly, the True sun god should absorb the other super monkeys and turn in to the Avatar of the vengeful monkey.
+hi
