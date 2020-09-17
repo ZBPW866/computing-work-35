@@ -1,4 +1,4 @@
-##HOW TO GET AVATAR OF THE VENGEFUL MONKEY IN BTD6
+##HOW TO GET AVATAR OF THE VENGEFUL MONKEY IN BTD6##
 Step 1: Get the magic monkey knowledge "There can only be one" and apply it in a gamemode that is not sandbox or C.H.I.M.P.S..
 Step 2: Get a plazma blast(3xx) super monkey.
 Step 3: Sacrifice $50,000 on 3 of the 4 tower types(primary, military, magic or support) by upgrading the super monkey to Sun temple(4xx) with the other towers close to it.
